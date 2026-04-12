@@ -48,7 +48,7 @@ Methodological toolkit developed for election observation and institutional asse
 
 - **MSc Strategic Management** — University of Vienna *(2024, with distinction)*
 - **MAS European Integration** — University of Basel *(Insigni cum laude · Swiss Federal Scholarship)*
-- **BA Law / BA Political Science** — University of Sarajevo
+- **BA Economics / BA English** — University of Sarajevo
 
 ---
 
